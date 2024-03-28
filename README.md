@@ -1,1 +1,1 @@
-graf
+graf k článku o těšíně
